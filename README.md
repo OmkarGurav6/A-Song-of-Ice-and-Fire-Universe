@@ -16,7 +16,7 @@
 
     For those who may be contemplating the idea and challenge of reading both  _**“A Feast for Crows” _**_ and  _**“A Dance with Dragons“**_ at the same time/together – You will       most likely need a guidebook (or more likely a psychiatrist😂) for help.
     
-    There is a [list](http://afeastwithdragons.com/){:target="_blank" rel="noopener"} which has the correct full combined _**“POV Chapters”**_ from both books and the order in         which to read them.
+    There is a [list](http://afeastwithdragons.com/) which has the correct full combined _**“POV Chapters”**_ from both books and the order in         which to read them.
 
   * You can read _**"The World of Ice and Fire Untold History of Westeros"**_ before or after reading main 5 books but it is recommeneded to read this book after reading all main     books. 
   
